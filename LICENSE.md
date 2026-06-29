@@ -1,4 +1,4 @@
-
+stealth Script for grow a garden is the best grow a garden Script, featuring infinite resources and anti-ban. Safe and powerful for all your needs.
 
 
 
